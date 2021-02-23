@@ -1,4 +1,0 @@
-# Hibernate
-## Tytuł 
-fsjnaklWMAL \
-JDNZXGKEDMSL
