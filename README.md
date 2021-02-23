@@ -1,4 +1,4 @@
 # Hibernate
 ## Tytuł 
-fsjnaklWMAL /
+fsjnaklWMAL \
 JDNZXGKEDMSL
